@@ -1,1 +1,0 @@
-# Delore_portfolio
